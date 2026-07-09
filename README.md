@@ -32,32 +32,7 @@
 
 ##  Project Scope
 > [project presentation](https://canva.link/o58sb9wjla0jofv)
--  
--  
-- 
-- 
-- 
-
 
 
 ---
-
-## Project Plan (5 Weeks)
-
-###  Week 1 —
-- 
-
-
-### Week 2 —
--  
-
-
-### Week 3 — 
-- 
-
-
-### Week 4 — 
--   
-
-
 
